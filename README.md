@@ -4,6 +4,6 @@
 - amo animais, principalmente gatos EMOJICODE🐈
 -
 - 
-  ![](https://media1.tenor.com/m/YYiRgFPD9sYAAAAd/the-last-of-us-ellie.gif)
+  ![](https://media1.tenor.com/m/qPjpAB-1N0cAAAAd/ellie-ellie-williams.gif)
 
 
