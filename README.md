@@ -3,6 +3,6 @@
 - adoro doces 🍫
 - amo animais, principalmente gatos 🐈
 
-https://tenor.com/pt-BR/view/ellie-ellie-williams-tlou-gif-21860915
 
 
+https://media1.tenor.com/m/PabHFxEgr68AAAAd/the-last-of-us-ellie.gif
